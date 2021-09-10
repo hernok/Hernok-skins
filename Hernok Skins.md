@@ -1,7 +1,7 @@
 ## Media
 ### [Twitch](https://www.twitch.tv/hernok1)
 ### [Youtube](https://www.youtube.com/channel/UC2rhxUIAPHCu5L5m83T_0xQ)
-### [osu](https://osu.ppy.sh/users/2589756)
+### [osu! profile](https://osu.ppy.sh/users/2589756)
 
 # Hernok-skins
 ## [- # re;owoTuna v1.1 『Selyu』 # -](https://drive.google.com/file/d/1KICxnMr-JMD_2aaJcTHw4WQxAoeVX2J4/view)![alt text](https://i.gyazo.com/5d51c1083a3499910dc407738658306d.jpg)
